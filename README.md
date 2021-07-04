@@ -1,0 +1,3 @@
+This Veg Biryani is an authentic Indian vegetarian recipe packed full of your favorite rice, veggies, and spices. Made with patience and lots of love, this delicious veg dum biryani requires both care and attention to detail. The savory flavors in your first bite are well worth the time and effort spent in the kitchen.
+
+In simple words Biryani is a rice and curry casserole. The curry can be meat based or vegetable based.
